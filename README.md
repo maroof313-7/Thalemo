@@ -19,7 +19,7 @@ prize given to nang’s favorite project made using PearAI ,
 prize given to social media post tagging PearAI with most
 engagement
 - entry to best "come with me to my hackathon" vlog (3)
-- entry to best overall yay :3 ($100 + snack boxes and random swag)
+- entry to best overall yay :3 
 - entry to i laughed. (new hackers prize) ( I have been to only 2 hackathons and this my 3rd one. )
 - entry to Wakaba Prize
 - entry to (IJAG) I’m Just A Girl
